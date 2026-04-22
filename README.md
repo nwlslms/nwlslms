@@ -6,7 +6,7 @@ So far, I’ve learned `C++` and `C`, which I’ve used extensively for Competit
 
 ## CONTACT ✉️📱
 ✉️ You can reach me at ✉️
-- Discord    : Silsukadia
+- Discord    : nawawalala
 - Email      : nwlslms20@gmail.com
 - Instagram  : @nwlslms
 - LINE       : silhahahihi
